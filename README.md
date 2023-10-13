@@ -1,0 +1,1 @@
+# Minc-_Bianca_ProiectPOO
